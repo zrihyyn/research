@@ -1,0 +1,5 @@
+![roger](https://github.com/zrihyyn/research/assets/171568744/bbf75f6b-6edc-46ca-859b-2f387fc6d484)
+![metasea](https://github.com/zrihyyn/research/assets/171568744/70aebfbe-c09a-407b-a59d-a5ec5c471afc)
+![sealand](https://github.com/zrihyyn/research/assets/171568744/71c214c2-9fc2-4de1-8da1-46808089dd18)
+![sealand-e1519315328455](https://github.com/zrihyyn/research/assets/171568744/0bc6b6ec-99aa-46d6-af92-779e41b15a33)
+![hans](https://github.com/zrihyyn/research/assets/171568744/2efbc7e5-f640-49db-afcf-599bd11b4cad)
